@@ -1,0 +1,66 @@
+# NewJeans – Supernatural
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:04.48] Come on let-let-let-let-let-let-let-let-let-let-let-let go!
+[00:08.10] A rabid sea-saw
+[00:10.80] But this exploding your brain it's gonna blow me out me out again
+[00:14.46] And now i don't feel the same
+[00:18.93] Come on let-let-let-let-let-let-let-let-let-let-let-let go! Bionic hee-haww
+[00:25.26] You can dress yourself to dance
+[00:27.02] And you can wear your party chains
+[00:28.85] And i will welcome you the same
+[00:32.55] Come on let-let-let-let-let-let-let-let-let-let-let-let go!
+[00:34.38] It's not a question for your head
+[00:38.87] Come and join me near the speaker there's a ruby in your eye oh we don't have to be the same.
+[00:46.96] Cause your ohms the sweetest thing inside of you
+[00:52.37] Our home is bigger than a mountain view
+[00:57.86] You find something you believe that you should do
+[01:02.32] Sometimes it won't come so easy
+[01:06.82] But sometimes you've gotta go get mad, mad
+[01:27.82] 
+[01:12.25] Come on let-let-let-let-let-let-let-let-let-let-let-let go!
+[01:15.84] The shifting ease on / the shift in "e"s on
+[01:19.49] Let's me trip and i will stay with the reds and then the pains
+[01:22.25] And now we're going up the same
+[01:26.79] Come on let-let-let-let-let-let-let-let-let-let-let-let go!
+[01:30.32] I've got a question for your head
+[01:33.08] I made a shadow with my hand
+[01:34.83] And i made it like your heart
+[01:36.68] And it will never be the same
+[01:41.25] Cause your ohms the sweetest thing inside of you
+[01:44.83] My home is bigger than a mountain view
+[01:49.37] Your find something you believe that you should do
+[01:52.07] Sometimes it won't come so easy but sometimes you've gotta go get mad, mad
+[02:29.07] 
+[02:01.15] All the good things
+[02:06.56] Like having your surf breaks
+[02:11.96] All of the
+[02:14.75] Good things
+[02:17.46] Like friends
+[02:19.23] From a long way
+[02:21.99] They'll be some fat kings
+[02:27.33] You'll see
+[02:28.25] Comes for
+[02:30.04] Nothing
+[02:31.88] And then we watch them
+[02:34.53] Shred
+[02:35.42] Feels like
+[02:37.24] The suns going down
+[02:41.70] Can you see the clouds
+[02:44.58] Bet your in baltimore laughing so loud
+[02:49.97] But have you seen those clouds
+[02:54.42] Then you should come on out
+[02:58.03] Today feels so supernatural
+[03:11.53] 
+[03:03.42] Come on let-let-let-let-let-let-let-let-let-let-let-let go!
+[03:06.11] Erratic sea-saw is this exploding your brain it's gonna blow me out again
+[03:13.49] And now i don't feel the same
+[03:16.11] Come on let-let-let-let-let-let-let-let-let-let-let-let go!
+[03:19.73] I've got a question for the dead
+[03:22.57] I made a shadow with my hand
+[03:24.45] And i made it like your heart
+[03:26.22] And they will never be the same
+[03:28.92] Same
+```
